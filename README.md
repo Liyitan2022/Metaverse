@@ -6,6 +6,8 @@
 
 2.清华沈阳团队元宇宙报告2.0
 
-3.麦肯锡McKinsey元宇宙报告
+3.麦肯锡McKinsey元宇宙报告-> Value-creation-in-the-metaverse.pdf
 
+4.《中国数字权益白皮书》
 
+(免费分享非商用，如有侵权联系我删除)
